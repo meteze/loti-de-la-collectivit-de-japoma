@@ -1,0 +1,1 @@
+# loti-de-la-collectivit-de-japoma
